@@ -47,5 +47,5 @@ Currently contributing to impactful student tools and backend systems.
 
 ## Contact
 
-- **Email:** snehashandilya@gmail.com  
-- **LinkedIn:** [linkedin.com/in/sneha-shandilya](https://www.linkedin.com/in/sneha-shandilya)  
+- **Email:** snehashandilya90@gmail.com  
+- **LinkedIn:** ([https://www.linkedin.com/in/sneha-shandilya](https://www.linkedin.com/in/shandilyasneha09/))  
